@@ -5,7 +5,7 @@
 
 - 📫 How to contact me : **cardonsowenpro@gmail.com**
 
-- 📄 Know about my experiences : [none :c](none :c)
+- 📄 Know about my experiences : none :c
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
