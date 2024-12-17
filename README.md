@@ -5,7 +5,7 @@
 
 - 📫 How to reach me : **cardonsowenpro@gmail.com**
 
-- 📄 Know about my experiences [Lead Developper for ONDRH (17th June 2024 – 12th July 2024)](Lead Developper for ONDRH (17th June 2024 – 12th July 2024))
+- 📄 Know about my experiences [Lead Developper for ONDRH (17th June 2024 – 12th July 2024)]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
