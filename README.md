@@ -19,7 +19,7 @@
 ---
 
 ### 📄 Experience
-- [Lead Developer for ONDRH (17th June 2024 – 12th July 2024)](Lead Developper for ONDRH (17th June 2024 – 12th July 2024))
+- [Lead Developer for ONDRH  (17th June 2024 – 12th July 2024)]
 
 ---
 
